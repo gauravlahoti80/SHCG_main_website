@@ -1,1 +1,0 @@
-# SHCG-Website
